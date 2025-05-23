@@ -18,7 +18,7 @@
 
 
 > **Note** 👨‍🎓:
-Currently looking for an internship in February 2025 (6 months)!
+Currently working for BNP Paribas.
 
 
 ### 🔍 I’m currently **learning** :
